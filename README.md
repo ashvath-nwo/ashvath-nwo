@@ -7,7 +7,7 @@ i dont know to make an application
 #
 worst at playing irl games
 #
-my height is small because im in 5th grade(yes)
+my height is small because im in 6th grade(yes)
 # Interested things
 I use windows in my android phone
 #
